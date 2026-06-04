@@ -1,4 +1,6 @@
- ![](https://komarev.com/ghpvc/?username=WestfallAgent&label=snakelings&abbreviated=true&color=90D170) <img width="30" height="30" alt="1000059822" src="https://github.com/user-attachments/assets/f455d3c3-5a29-4077-b9bd-822a029ba787" />
+ ![](https://komarev.com/ghpvc/?username=WestfallAgent&label=cupcakes&abbreviated=true&color=AE519A) <img width="50" height="50" alt="1000065684" src="https://github.com/user-attachments/assets/bad65735-10c2-4fac-9e6e-266182dc8359" />
 
 
-<img width="440" height="349" alt="1000059818" src="https://github.com/user-attachments/assets/ba632f81-8f50-4fcb-bdc5-b64d28f1697e" />
+
+<img width="500" height="500" alt="1000065665" src="https://github.com/user-attachments/assets/feff6553-03cb-411a-ae52-dff30b28b35d" />
+

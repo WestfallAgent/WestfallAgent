@@ -1,4 +1,4 @@
- ![](https://komarev.com/ghpvc/?username=WestfallAgent&label=Aleksander+♡&abbreviated=true&color=FCD2A1) <img width="30" height="30" alt="1000066919" src="https://github.com/user-attachments/assets/d8e677f3-c73b-4b99-9da8-1e9aa14fef0c" />
+ ![](https://komarev.com/ghpvc/?username=WestfallAgent&label=GoddessLaw+of+Cycles+♡&abbreviated=true&color=FFFFFF) <img width="20" height="20" alt="1000068694" src="https://github.com/user-attachments/assets/65adb1a1-2916-4cae-8f88-28afe01b0ecd" />
 
 
-<img width="734" height="331" alt="1000066916" src="https://github.com/user-attachments/assets/13e41267-b08d-4434-b7f1-eaf790e68e63" />
+<img width="500" height="281" alt="1000068682" src="https://github.com/user-attachments/assets/8b006787-fb82-4fac-bf40-db72107abba9" />
